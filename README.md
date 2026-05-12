@@ -1,4 +1,4 @@
-# Alino4kaAlino4ka-
+# Alino4kaAlino4ka
 
 ## 👋 Приветствую, я Алина Грибанова
 
